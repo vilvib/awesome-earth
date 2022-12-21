@@ -89,6 +89,9 @@ The world is simultaneously underwater and on fire, and people want to know what
 - [Lost in Samsara - Bags, Jewelry, and Accessories](https://www.lostinsamsara.co.uk) - Stylish products produced ethically from upcycled materials.  Bags made from cement bags, tires, and jewelry made from upcycled bullet casings.
 
 - [Love Linen](https://www.lovelinen.com.au/) - Linen clothing made with love in Australia
+
+- [menique](https://menique.com) - Sustainable clothing brand that focuses on a natural approach and earth-loving principles, offering high-quality garments made with 100% recyclable and renewable resources such as merino wool and linen, designed with comfort in mind and suitable for the whole family.
+
 - [MUD Jeans](https://mudjeans.eu/) - Zero impact jeans production obeying circular economy principles, paying fair wages and offering a repair service.
 - [Mezzoroni](https://mezzoroni.com/) - Oeko-tex certificated, cruelty free customizable linen clothing brand. All of the packaging are plastic free. 
 - [NN07](https://www.nn07.com/) - Using its [sustainable material matrix](https://www.nn07.com/made-to-last), No Nationality designs made-to-last clothing primarily with recycled and non-cotton natural materials including hemp, linen, wool, alpaca, and silk.
